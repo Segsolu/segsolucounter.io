@@ -1,0 +1,1 @@
+# segsolucounter.io
